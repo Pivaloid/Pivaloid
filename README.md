@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pivaloid
+- 👀 I’m interested in MMD Video Making
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on MMD videos!
+- 📫 How to reach me Discord at Pivaloid#1124
